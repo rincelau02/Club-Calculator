@@ -1,1 +1,0 @@
-Club Funds using Phone Gap Beta Version By Laurince G. Quijano
